@@ -52,7 +52,7 @@ También me dedico a la creación, configuración y administración de servidore
 
 ## 📫 Contacto
 
-- 📧 Gmail: TU_CORREO@gmail.com
+- 📧 Gmail: keinerrxjas@gmail.com
 - 💼 GitHub: [@keinerrxjas](https://github.com/keinerrxjas)
 
 ---
