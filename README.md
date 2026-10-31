@@ -1,4 +1,4 @@
-# 👋 ¡Hola! Soy Keiner Rojas
+# 👋 ¡Hola! Soy Keinerrxjas (Krx)
 
 ### 💻 Desarrollador de Software en formación
 
